@@ -1,1 +1,1 @@
-added some quotes by some famous photographers.
+added quotes by  famous photographers.
